@@ -1,1 +1,3 @@
-# exercicio-3
+Chave baixa eu amava dar soco nas outras crianças pq na minha mente elas eram mt resenha e gostavam de fazer o mesmo que nem eu
+no final todas tinham macrocefalia e suas cabeças explodiram e suas mães se mataram pela depressão do luto, no final de tudo isso...
+Valeu muito a pena..
